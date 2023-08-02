@@ -1,5 +1,5 @@
 - 👋 Olá, meu nome é Paula!
-- 👀 Atualmente estou estudando para me tornar uma desenvolvedora web.
+- 👀 Atualmente estou cursando Graduação em Analise e Desenvolvimento de Sistemas.
 - 🌱 Bióloga de formação, redescobri minha paixão pela tecnologia estudando como autodidata e agora uso da bagagem de conhecimentos analíticos que aprendi durante a graduação como forma de agregar aos novos conhecimentos que estou adquirindo.
 - ✨ Quando não estou estudando, gosto de costurar. Normalmente eu faço bordados inspirados pelos personagens que eu gosto e outras coisas relacionadas à cultura nerd. Recentemente, criei uma <a href="https://www.instagram.com/aluappanborda/" target="_blank">página no Instagram </a> para compartilhar minhas artes.
 - 🌈 Pronomes: Ela/Dela
